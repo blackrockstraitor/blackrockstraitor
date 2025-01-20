@@ -1,12 +1,10 @@
-- WIP
-- 
-- 
-- 
-- 
-- 
-- 
-
-<!---
-blackrockstraitor/blackrockstraitor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- I'm not here to make this look pretty , I just need this information down . (Triggering words ahead so beware)
+- I have a million names so you can just call me whichever one you want to !! Typically just Medkit or Med .
+- I am 17 years of age , still a minor and also a furry . Be weary of my age and your own ! I've had many rough interactions with minors and adults alike .
+- I have a typing quirk , please tell me to stop if you don't understand it or have a screen reader . (S = Z) 
+- I LOVE THESE FOUR SM !! - MY BOYFRIEND (No GitHub) My daughters (@ultiimatelifeform and @millerrrrrrrrrrrr / @1-blacksprunkifan) Lastly my twin (@angelicribbon)
+- I LOVE making gift skins it is my love language and something for me to do that I enjoy doing so just ask !!!
+- I won't put ' DNC ' in my skins names as I don't see how that prevents copying . That does NOT mean you can copy my skins especially the gifted ones or take too heavy of inspiration ! When I say you can take inspiration , that means you can take aspects of my skins/designs or even my style in general . I'd prefer you to ask me before taking inspiration so I don't think you're copying me ...
+- I am an online parent , if you want a mother and/or father figure , I can be both ! Just ask to be my kid . Or I can be your online sibling !!!
+- I'm mentally disabled and have extreme delusions about my identity due to trauma as I believe myself to be MANY fictional characters who reflect my pronouns (Fictionkins) along with other problems such as severe Anxiety that makes it hard for me to speak to others or hold a conversation and Visual Snow Syndrome .
+- The only DNI I'd say is homophobe , transphobe , zoophile , pedophile , necrophile , proshippers/comshippers , general weirdo , against fictionkins / saying I need a reality check , and ' systems ' (Sorry I don't trust you not to be faking a rare disorder unless you're already my friend lol) 
