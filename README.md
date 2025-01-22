@@ -4,7 +4,7 @@ Lost Temple's medic , at your service .
 
 - I have a million names so you can just call me whichever one you want to !! Typically just Medkit or Med . (Meddy if my boyfriend or roleplaying)
 
-- I am 17 years of age , still a minor and also a furry . Be weary of my age and your own ! I've had many rough interactions with minors and adults alike .
+- I am a minor and also a furry . Be weary of my age and your own ! I've had many rough interactions with minors and adults alike .
 
 - I have a typing quirk , please tell me to stop if you don't understand it or have a screen reader . (S = Z)
 
