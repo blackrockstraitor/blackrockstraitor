@@ -1,6 +1,5 @@
 Lost Temple's medic , at your service .
 
-
 - I'm not here to make this look pretty , I just need this information down . (Triggering topics at the DNI list)
 
 - I have a million names so you can just call me whichever one you want to !! Typically just Medkit or Med . (Meddy if my boyfriend or roleplaying)
