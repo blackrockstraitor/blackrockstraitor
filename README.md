@@ -10,7 +10,7 @@ Lost Temple's medic , at your service .
 
 - PLEASE BE MY FRIEND I LOVE MEETING NEW PEOPLE ! But be weary I am very forgetful and can forget who you are and I get distracted VERY easily .
 
-- I love my boyfriend and my daughters also my twin so much !! PLS I LOEV MTY HUSVAND I LOVE HIM SO MUCH HE IS TH BEST <33 Covering his face in lipstick marks as we speak :3
+- I love my boyfriend and my daughters also my twin so much !! PLS I LOEV MTY HUSVAND I LOVE HIM SO MUCH HE IS TH BEST <3 Covering his face in lipstick marks as we speak <33
 
 - I LOVE making gift skins especially for my boyfriend it is my love language and something for me to do that I enjoy doing so just ask !!!
 
