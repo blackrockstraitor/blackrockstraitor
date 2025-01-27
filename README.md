@@ -12,7 +12,7 @@ Lost Temple's medic , at your service .
 
 - I love my boyfriend , my family , and my twin so much !! PLS I LOEV MTY HUSVAND I LOVE HIM SO MUCH HE IS TH BEST <3 Covering his face in lipstick marks as we speak <33
 
-- I LOVE making gift skins especially for my boyfriend it is my love language and something for me to do that I enjoy doing so just ask !!!
+- I LOVE making gift skins especially for my boyfriend and family as it is my love language and something for me to do that I enjoy doing so just ask !!!
 
 - I won't put ' DNC ' in my skins names as I don't see how that prevents copying . That does NOT mean you can copy my skins especially the gifted ones or take too heavy of inspiration ! When I say you can take inspiration , that means you can take aspects of my skins/designs or even my style in general . I'd prefer you to ask me before taking inspiration so I don't think you're copying me ...
 
