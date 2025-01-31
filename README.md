@@ -24,6 +24,6 @@ Lost Temple's medic , at your service .
 
 - The only DNI I'd say is homophobe , transphobe , zoophile , pedophile , necrophile , proshipper/comshipper/darkshipper , lolicon , support bad people/characters/games/fandoms , general weirdo , interact with people I don't like , against fictionkins/saying I need a reality check , subkit and medhammer haters (I don't care if you hate it in general , you can hate but don't come at me about it or say that you hate it around me or my boyfriend) , anything about touching me or that I am fatherless or drug addiction/abuse/overdose (Joke or not ! If you must mention drugs at least make it subtle or censor it) , a lot of ships , and ' systems ' (Especially endosystems ! Sorry I don't trust you not to be faking a rare disorder unless you're already my friend lol)
 
-- Ship DNI list ; WIP
+- Ship INT list ; Subkit , Medhammer , Scyker , Vinescythe , Skatelaser , Hypertana , Bantana , Banbloxxer , Skatebox , Shurivalk , Slingspace , Skatespace , Vineforce , Vinedeeri , Trafficdeeri (Platonic , they see each other as family) , Vinespace , Coilpunk , Coilboard , Hyperspace (Platonic , they see each other as family) , Shurishot (Platonic , they see each other as family) , Swocket , Rocketshot , Swordboard , Subhammer , Shurilaser , Pwnaffic , Zukaheart , Banbox , Medcoil , Brokerspace , and Medtana .
 
-- Ship INT list ; WIP
+- Ship DNI list ; WIP
