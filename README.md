@@ -2,9 +2,11 @@ Lost Temple's medic , at your service .
 
 - I'm not here to make this look pretty , I just need this information down . Expect this to change A LOT ! (Triggering topics/words at the DNI list be careful)
 
-- I have a million names so you can just call me whichever one you want to !! Typically just Medkit or Med . (Meddy if my boyfriend or roleplaying)
+- I have a million names so you can just call me whichever one you want to !! Typically just Sebestian/Seb , Medkit/Med , or Subspace/Sub. (Meddy if my boyfriend or roleplaying/in character and Sebby if you're my boyfriend or Larry)
 
 - I am a minor and also a furry . Be weary of my age and your own ! I've had many rough interactions with minors and adults alike .
+
+- ALWAYS FREE TO C+H I HAVE A HUGE TOUCH COMFORT !! (Unless you're part of my DNI)
 
 - I have a typing quirk , please tell me to stop if you don't understand it or have a screen reader . (S = Z)
 
@@ -20,4 +22,4 @@ Lost Temple's medic , at your service .
 
 - I'm mentally disabled and have extreme delusions about my identity due to lots of trauma as I believe myself to be MANY fictional characters who reflect my pronouns (Fictionkins) along with being an alien and other problems such as severe Anxiety that makes it hard for me to speak to others or hold a conversation and Visual Snow Syndrome . Please be patient with me , I cannot control my problems . No , I do not go to therapy , I cannot afford it !!
 
-- The only DNI I'd say is homophobe , transphobe , zoophile , pedophile , necrophile , proshipper/comshipper/darkshipper , lolicon , support bad people/characters/games/fandoms , general weirdo , interact with people I don't like , against fictionkins/saying I need a reality check , subkit and medhammer haters (I don't care if you hate it in general you can hate or like what you want but don't come at me about it just because I like a fucking ship) , anything about touching me or that I am fatherless or drug addiction/abuse/overdose (Joke or not) , a lot of ships , and ' systems ' (Sorry I don't trust you not to be faking a rare disorder unless you're already my friend lol)
+- The only DNI I'd say is homophobe , transphobe , zoophile , pedophile , necrophile , proshipper/comshipper/darkshipper , lolicon , support bad people/characters/games/fandoms , general weirdo , interact with people I don't like , against fictionkins/saying I need a reality check , subkit and medhammer haters (I don't care if you hate it in general , you can hate but don't come at me about it or say that you hate it around me or my boyfriend) , anything about touching me or that I am fatherless or drug addiction/abuse/overdose (Joke or not ! If you must mention drugs at least make it subtle or censor it) , a lot of ships , and ' systems ' (Especially endosystems ! Sorry I don't trust you not to be faking a rare disorder unless you're already my friend lol)
