@@ -23,3 +23,7 @@ Lost Temple's medic , at your service .
 - I'm mentally disabled and have extreme delusions about my identity due to lots of trauma as I believe myself to be MANY fictional characters who reflect my pronouns (Fictionkins) along with being an alien and other problems such as severe Anxiety that makes it hard for me to speak to others or hold a conversation and Visual Snow Syndrome . Please be patient with me , I cannot control my problems . No , I do not go to therapy , I cannot afford it !!
 
 - The only DNI I'd say is homophobe , transphobe , zoophile , pedophile , necrophile , proshipper/comshipper/darkshipper , lolicon , support bad people/characters/games/fandoms , general weirdo , interact with people I don't like , against fictionkins/saying I need a reality check , subkit and medhammer haters (I don't care if you hate it in general , you can hate but don't come at me about it or say that you hate it around me or my boyfriend) , anything about touching me or that I am fatherless or drug addiction/abuse/overdose (Joke or not ! If you must mention drugs at least make it subtle or censor it) , a lot of ships , and ' systems ' (Especially endosystems ! Sorry I don't trust you not to be faking a rare disorder unless you're already my friend lol)
+
+- Ship DNI list ; WIP
+
+- Ship INT list ; WIP
