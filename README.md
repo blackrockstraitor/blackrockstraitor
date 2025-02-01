@@ -12,7 +12,7 @@ Lost Temple's medic , at your service .
 
 - PLEASE BE MY FRIEND I LOVE MEETING NEW PEOPLE ! But be weary I am very forgetful and can forget who you are plus I get distracted VERY easily . I also can get uncomfortable easily mainly around ships and certain words/jokes . 
 
-- I love my boyfriend , my family , and my twin so much !! PLS I LOEV MTY HUSVAND I LOVE HIM SO MUCH HE IS TH BEST <3 Covering his face in lipstick marks as we speak <33 (Husband - @forxstz . Kids - @TheBluePendrive , @millerrrrrrrrrrrr / @C00LKIDDFORSAKEN . Kid in law - @s0nkysun . Twin - @angelicribbon .)
+- I love my boyfriend , my family , and my twin so much !! PLS I LOEV MTY HUSVAND I LOVE HIM SO MUCH HE IS TH BEST <3 Covering his face in lipstick marks as we speak <33 (Husband - @forxstz . Kids - @knuxadow , @millerrrrrrrrrrrr / @C00LKIDDFORSAKEN . Kid in law - @s0nkysun . Twin - @angelicribbon .)
 
 - I LOVE making gift skins especially for my boyfriend and family as it is my love language and something for me to do that I enjoy doing so just ask !!! Just because I am nice enough to make skins for you , does NOT mean you can abuse that power by asking me for skins all the time unless I offer them myself or we make a deal .. Do not expect any art from me as I am a retired artist .
 
@@ -26,4 +26,4 @@ Lost Temple's medic , at your service .
 
 - Ship INT list ; Subkit , Medhammer , Scyker , Vinescythe , Skatelaser , Hypertana , Bantana , Banbloxxer , Skatebox , Shurivalk , Slingspace , Skatespace , Vineforce , Vinedeeri , Trafficdeeri (Platonic , they see each other as family) , Vinespace , Medbox , Coilpunk , Coilboard , Hyperspace (Platonic , they see each other as family) , Shurishot (Platonic , they see each other as family) , Swocket , Rocketshot , Hyperkit , Swordboard , Subhammer , Shurilaser , Pwnaffic , Zukaheart , Banbox , Medcoil , Brokerspace , Medtana , Zukasword , Spive , Spilby , Skaterbeetle , Coldfang , Ice cream cake (Poob x Crem) , Party act (Poob x Pilby) Retrohammer , Doublefedora , Pizzatime (Two Time x Elliot) , Roblox x Builderman , Chance x Guest 1337 (?) , Firespawn , and any Mirrorships .
 
-- Ship DNI list ; Anything illegal , Shuribox , Valkbox , Coilspace , Skatehammer , Biobox , Shurihammer , Vineatious/Pwnstaff , Swordbox , Coilgraft , Swordstaff , Brokertana , Skatestaff , Vinebox , Slingdom , Brokerzuka , Illuzuka , Partybeetle , Pestkit , Two Time x Chance , Medstaff , Medboard , Medscythe , Brokerkit , and Shuriboard .
+- Ship DNI list ; Anything illegal , Shuribox , Valkbox , Coilspace , Skatehammer , Biobox , Shurihammer , Vineatious/Pwnstaff , Swordbox , Coilgraft , Swordstaff , Brokertana , Skatestaff , Vinebox , Slingdom , Brokerzuka , Illuzuka , Partybeetle , Pestkit , Two Time x Chance , Medstaff , Medboard , Medscythe , Brokerkit , Elliot x Chance , and Shuriboard .
