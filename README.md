@@ -1,6 +1,6 @@
 Lost Temple's medic , at your service .
 
-- I'm not here to make this look pretty , I just need this information down . Expect this to change A LOT especially in the ship parts ! (Triggering topics/words at the DNI list so be careful)
+- I'm not here to make this look pretty , I just need this information down . Expect this to change A LOT ! (Triggering topics/words at the DNI list so be careful)
 
 - I have a million names so you can just call me whichever one you want to !! Typically just Sebastian/Seb . (Meddy if my boyfriend or roleplaying/in character and Sebby if you're Larry)
 
