@@ -1,12 +1,12 @@
-Lost Temple's medic , at your service .
+SPREAD .
 
-- I'm not here to make this look pretty , I just need this information down . Expect this to change A LOT ! (Triggering topics/words at the DNI list so be careful)
+- Hey guys , Rochas here ! I'm not here to make this look pretty , I just need this information down . Expect this to change A LOT ! (Triggering topics/words at the DNI list so be careful)
 
-- I have a million names so you can just call me whichever one you want to !! Typically just Sebastian/Seb . (Meddy if roleplaying/in character and Sebby if you're Larry)
+- I have a million names so you can just call me whichever one you want to !! Rochas would be preferred . (Meddy if roleplaying/in character and Sebby if you're Larry)
 
 - I am a minor and also a furry . Be weary of my age and your own ! I've had many rough interactions with minors and adults alike .
 
-- ALWAYS FREE TO C+H AND INT WITH ME I HAVE A HUGE TOUCH COMFORT !! (Unless you're part of my DNI or I have DNI directly in my name)
+- ALWAYS FREE TO C+H AND INT WITH ME I HAVE A HUGE TOUCH COMFORT !! If I'm behind someone to the point of being hidden , I DO NOT WANT TO BE INTERACTED WITH UNLESS YOU'RE MY FRIEND . (Also do not cuddle me if you're in my DNI lol)
 
 - I have a typing quirk , please tell me to stop if you don't understand it or have a screen reader . (S = Z)
 
@@ -24,6 +24,6 @@ Lost Temple's medic , at your service .
 
 - Thin Ice ; oc x canon shippers and self shippers/yumeshippers . I'm not an anti of these , it just makes me uncomfortable if towards a character I see as myself !! Please just keep it away from characters I fictionkin or make it into a joke of some sort . (NOTHING SEXUAL IF JOKING)
 
-- DNI ; homophobe , transphobe , zoophile , pedophile , necrophile , pokephile , proshipper/comshipper/darkshipper , lolicon , will sexualize me when I'm age or pet regressed , support bad people/characters/games/fandoms , general weirdo , interact with people I don't like , against fictionkins/saying I need a reality check , subkit and medhammer haters (I don't care if you hate it in general , you can hate but don't come at me about it or say that you hate it around me) , anything about touching me or that I am fatherless or drug addiction/abuse/overdose (Joke or not ! If you must mention drugs at least make it subtle or censor it) , force religion onto me (I'm a set atheist) , and ' systems ' . (Especially endosystems ! Sorry I don't trust you not to be faking a rare disorder unless you're already my friend lol)
+- DNI ; homophobe/transphobe , zoophile/pedophile/necrophile/pokephile , proshipper/darkshipper , lolicon , will sexualize me when I'm age or pet regressed , support bad people/characters/games/fandoms , general weirdo , interact with people I don't like , against fictionkins/saying I need a reality check , subkit and medhammer haters (I don't care if you hate it in general , you can hate but don't come at me about it or say that you hate it around me) , anything about touching me or that I am fatherless or drug addiction/abuse/overdose (Joke or not ! If you must mention drugs at least make it subtle or censor it) , force religion onto me (I'm a set atheist) , and ' systems ' . (Especially endosystems ! Sorry I don't trust you not to be faking a rare disorder unless you're already my friend lol)
 
 - I'm a multishipper but hate a lot of ships in fandom spaces so do not force your ships onto me and be weary when interacting or around me with a ship in your name unless I make it clear to you that it's okay . I love Oc x Oc though PLS SHIP OCS WITH ME !!! (Mirrorships are okay and CERTAIN comships like human x robot and human x zombie are okay as well)
