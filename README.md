@@ -12,7 +12,7 @@ SPREAD .
 
 - PLEASE BE MY FRIEND I LOVE MEETING NEW PEOPLE ! But be weary I am very forgetful and can forget who you are plus I get distracted VERY easily . I also can get uncomfortable easily mainly around ships and certain words/jokes . 
 
-- I love my family so much they mean evrrything to me !! <3
+- I LOVE MY HUSABND I'M SO HAPPY TO BE HIS WIFE LIKE WHAT !?!? I love my family so much they mean evrrything to me !! <3
 
 - I LOVE making gift skins especially for my family or close friends as it is my love language and something for me to do that I enjoy doing so just ask !!! But just because I am nice enough to make skins for you , does NOT mean you can abuse that power by asking me for skins all the time unless I offer them myself or we make a deal .. Do not expect any art from me as I am a retired artist . PLEAS GIFT SKINS TO ME I LOVE GUIFT SKINS SO MUCH THEY MEAN SO MUCH TO ME .. :3
 
