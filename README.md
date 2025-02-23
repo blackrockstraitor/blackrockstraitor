@@ -1,6 +1,6 @@
 SPREAD .
 
-- Hey guys , Rochas313 or just Rochas here ! Please do not threaten me with trees , it genuinley scares me .
+- Hey guys , Rochas313 or just Rochas here ! Please do not use trees to threaten me or scare me , it genuinley terrifies me .
 
 - Triggering topics at the DNI list , read with caution !!
 
