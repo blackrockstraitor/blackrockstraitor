@@ -10,7 +10,7 @@ SPREAD .
 
 - ALWAYS FREE TO C+H AND INT WITH ME I HAVE A HUGE TOUCH COMFORT !! If I'm behind someone to the point of being hidden , I DO NOT WANT TO BE INTERACTED WITH UNLESS YOU'RE MY FRIEND . (Also do not cuddle me if you're in my DNI lol)
 
-- I have a typing quirk , please tell me to stop if you don't understand it or have a screen reader . (S = Z)
+- I have a typing quirk , please NICELY tell me to stop if you don't understand it or have a screen reader . You don't need to be a bitch just because you don't understand it or have a reader , it isn't hard to simply tell me that I need to speak without the typing quirk . (S = Z)
 
 - PLEASE BE MY FRIEND I LOVE MEETING NEW PEOPLE ! But be weary I am very forgetful and can forget who you are plus I get distracted VERY easily . I also can get uncomfortable easily mainly around ships and certain words/jokes .
 
