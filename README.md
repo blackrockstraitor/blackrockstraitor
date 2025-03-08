@@ -16,7 +16,7 @@ SPREAD .
 
 - I LOVE MY HUSABND I'M SO HAPPY TO BE HIS WIFE LIKE WHAT !?!? I love my family so much they mean evrrything to me !! <3
 
-- I LOVE making gift skins especially for my family or close friends as it is my love language and something for me to do that I enjoy doing so just ask !!! But just because I am nice enough to make skins for you , does NOT mean you can abuse that power by asking me for skins all the time unless I offer them myself or we make a deal .. Do not expect any art from me as I am a retired artist . PLEAS GIFT SKINS TO ME I LOVE GUIFT SKINS SO MUCH THEY MEAN SO MUCH TO ME .. :3
+- I LOVE making gift skins especially for my family or close friends as it is my love language and something for me to do that I enjoy doing so just ask !!! On another note , I also love skin trading !! Basically the same thing but I will make a skin for you even if I don't know you ! PLEASE GIFT OR TRADE SKINS I LOVE RECEIVING AND MAKING SKINS SO MUCH .. :3 Do not expect any art from me as I am a retired artist ...
 
 - I won't put DNC in my skins names as I don't see how that prevents copying but that does NOT mean you can copy my skins especially the gifted ones or take too heavy of inspiration from them ! I'd prefer you to ask me before taking inspiration so I don't think you're copying me ...
 
