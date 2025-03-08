@@ -12,9 +12,7 @@ SPREAD .
 
 - I have a typing quirk , please tell me to stop if you don't understand it or have a screen reader . (S = Z)
 
-- PLEASE BE MY FRIEND I LOVE MEETING NEW PEOPLE ! But be weary I am very forgetful and can forget who you are plus I get distracted VERY easily . I also can get uncomfortable easily mainly around ships and certain words/jokes . 
-
-- I LOVE MY HUSABND I'M SO HAPPY TO BE HIS WIFE LIKE WHAT !?!? I love my family so much they mean evrrything to me !! <3
+- PLEASE BE MY FRIEND I LOVE MEETING NEW PEOPLE ! But be weary I am very forgetful and can forget who you are plus I get distracted VERY easily . I also can get uncomfortable easily mainly around ships and certain words/jokes .
 
 - I LOVE making gift skins especially for my family or close friends as it is my love language and something for me to do that I enjoy doing so just ask !!! On another note , I also love skin trading !! Basically the same thing but I will make a skin for you even if I don't know you ! PLEASE GIFT OR TRADE SKINS I LOVE RECEIVING AND MAKING SKINS SO MUCH .. :3 Do not expect any art from me as I am a retired artist ...
 
