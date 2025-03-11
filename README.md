@@ -1,4 +1,4 @@
-This hearbeat isn't mine .
+SPREAD .
 
 - Hey guys , Rochas313 or just Rochas here !
 
@@ -28,14 +28,4 @@ This hearbeat isn't mine .
 
 - DNI ; homophobe/transphobe , zoophile/pedophile/necrophile/pokephile , proshipper/darkshipper , lolicon , will sexualize me when I'm age or pet regressed , support bad people/characters/games/fandoms , general weirdo , interact with people I don't like , against fictionkins/saying I need a reality check , subkit and medhammer haters (I don't care if you hate it in general , you can hate but don't come at me about it or say that you hate it around me) , anything about touching me , that I'm fatherless , threatening me with a tree , or drug addiction/abuse/overdose (Joke or not ! If you must mention drugs at least make it subtle or censor it) , force religion onto me (I'm a set atheist) , endosystems , and anyone faking ANY disorder !
 
-SPREAD .
-
-SPREAD .
-
-SPREAD .
-
-SPREAD .
-
-SPREAD .
-
-SPREAD .
+This heartbeat isn't mine .
