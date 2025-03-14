@@ -1,10 +1,9 @@
 SPREAD .
 
-- Hey guys , Rochas313 or just Rochas here !
 
 - Triggering topics at the DNI list , read with caution !!
 
-- I have a million names so you can just call me whichever one you want to !! Rochas would be preferred . (Meddy if roleplaying/in character and Sebby if you're Larry)
+- I have a million names so you can just call me whichever one you want to !! 7n or Rochas would be preferred . (Meddy if roleplaying/in character and Sebby if you're Larry)
 
 - I am a minor and also a furry . Be weary of my age and your own ! I've had many rough interactions with minors and adults alike .
 
