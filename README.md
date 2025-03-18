@@ -1,6 +1,5 @@
 SPREAD .
 
-
 - There is triggering words/topics at the DNI list , read with caution !!
 
 - I have a million names so you can just call me whichever one you want to !! 7n or Rochas would be preferred . (Only Larry can call me Sebby)
@@ -20,6 +19,5 @@ SPREAD .
 - INT but on thin Ice ; oc x canon shippers and self shippers/yumeshippers . I'm not an anti of these , it just makes me uncomfortable if towards a character I see as myself !! Please just keep it away from characters I am . (I can make or grow to like certain oc x canon ships , but never will that be a common thing)
 
 - DNI ; homophobe/transphobe , zoophile/pedophile/necrophile/pokephile , proshipper/darkshipper , lolicon , will sexualize me when I'm age or pet regressed , support bad people/characters/games/fandoms , general weirdo , interact with people I don't like , against fictionkins/saying I need a reality check , subkit and medhammer haters (I don't care if you hate it in general , you can hate but don't come at me about it or say that you hate it around me) , anything about touching me , that I'm fatherless , threaten/scare me with a tree (Only okay if you're joking) , force religion onto me (I'm a set atheist) , and anyone faking ANY disorder ! You people are horrible and I don't get how you can even do such a thing when there are real people out there dealing with these disorders .
-
 
 Why isn't my heartbeat my own !?
