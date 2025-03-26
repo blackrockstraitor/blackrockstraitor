@@ -4,7 +4,7 @@ We're on it , boss !
 
 - I have a million names so you can just call me whichever one you want to !! Rochas would be preferred . (Only Larry can call me Sebby)
 
-- I'm mentally disabled due to multiple years of trauma and ongoing . Because of this , I also age and pet regress , caretakers interact !! Also please be patient with me , I cannot control my problems . 
+- I'm mentally disabled due to multiple years of trauma and ongoing . Because of this , I also age and pet regress , caretakers interact !! Also please be patient with me , I cannot control my problems . (KEEP IN MIND I POSSIBLY HAVE AUDHD / Autism + ADHD)
 
 - I have a typing quirk , please NICELY tell me to stop if you don't understand it or have a screen reader . It isn't hard to simply tell me that I need to speak without the typing quirk . (S = Z)
 
