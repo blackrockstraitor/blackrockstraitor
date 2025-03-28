@@ -2,7 +2,7 @@ Here we go , folks !
 
 - There is triggering words/topics at the DNI list , read with caution !!
 
-- I have a million names so you can just call me whichever one you want to !! Mafioso/Mafiaso would be preferred . (Only Larry can call me Sebby)
+- I have a million names so you can just call me whichever one you want to !! Mafiaso/Mafioso would be preferred . (Only Larry can call me Sebby)
 
 - I'm mentally disabled due to multiple years of trauma and ongoing . Because of this , I also age and pet regress , caretakers interact !! Also please be patient with me , I cannot control my problems . (KEEP IN MIND I POSSIBLY HAVE AUDHD / Autism + ADHD)
 
